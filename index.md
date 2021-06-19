@@ -354,14 +354,14 @@ ACAIT 2018 (EI)
 </div>
 
 ### Joint supervisor for former students
-Yibing Tang, Undergraduate， [Harbin Institute of Technology, Shenzhen](http://www.google.com/url?q=http%3A%2F%2Fwww.hitsz.edu.cn%2Findex.html&sa=D&sntz=1&usg=AFQjCNFLsYIQ7qGqKGr_3MzQ5KcRSMkKPQ), China
+Yibing Tang, Undergraduate, [Harbin Institute of Technology, Shenzhen](http://www.google.com/url?q=http%3A%2F%2Fwww.hitsz.edu.cn%2Findex.html&sa=D&sntz=1&usg=AFQjCNFLsYIQ7qGqKGr_3MzQ5KcRSMkKPQ), China
 
-Chen Lu, Undergraduate， [Harbin Institute of Technology, Shenzhen](http://www.google.com/url?q=http%3A%2F%2Fwww.hitsz.edu.cn%2Findex.html&sa=D&sntz=1&usg=AFQjCNFLsYIQ7qGqKGr_3MzQ5KcRSMkKPQ), China
+Chen Lu, Undergraduate, [Harbin Institute of Technology, Shenzhen](http://www.google.com/url?q=http%3A%2F%2Fwww.hitsz.edu.cn%2Findex.html&sa=D&sntz=1&usg=AFQjCNFLsYIQ7qGqKGr_3MzQ5KcRSMkKPQ), China
 
 Jia Fu, PhD, [Harbin University of Science and Technology](http://www.google.com/url?q=http%3A%2F%2Fwww.hrbust.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNF6zAYTGToDM2AoBW0ItJAUdUb2Lw), China
 
 Qi Tang, Master, [Shenzhen Unversity ](https://www.google.com/url?q=https%3A%2F%2Fen.szu.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNEIPlaNz9hayUPw3Qo8wRX0W5NcUQ), China
 
-Jidong Wang,  Master, [Shenzhen Unversity ](https://www.google.com/url?q=https%3A%2F%2Fen.szu.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNEIPlaNz9hayUPw3Qo8wRX0W5NcUQ), China
+Jidong Wang, Master, [Shenzhen Unversity ](https://www.google.com/url?q=https%3A%2F%2Fen.szu.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNEIPlaNz9hayUPw3Qo8wRX0W5NcUQ), China
 
-Xiaorui Li,  Postgraduates，[Harbin University of Science and Technology](http://www.google.com/url?q=http%3A%2F%2Fwww.hrbust.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNF6zAYTGToDM2AoBW0ItJAUdUb2Lw), China
+Xiaorui Li, Postgraduates, [Harbin University of Science and Technology](http://www.google.com/url?q=http%3A%2F%2Fwww.hrbust.edu.cn%2F&sa=D&sntz=1&usg=AFQjCNF6zAYTGToDM2AoBW0ItJAUdUb2Lw), China
